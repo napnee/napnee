@@ -1,16 +1,18 @@
-## Hi there 👋
 
-<!--
-**napnee/napnee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
+**n***ana ‪‪**ᢉ𐭩**‬‬ 1***8** unlabeled *he him*
+  
+  ‎‎
+    <img width="300" src="https://i.pinimg.com/1200x/6d/03/d4/6d03d4dc6ee22583240c81e2f5f29b03.jpg">
+</p>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[**s**traw](https://mitsubunnies.straw.page) </p> ‎‎‎‎[**a**ta](https://napne.atabook.org) </p> *c+h* **&** *int* **a**lways
+
+</div>
+<div align="center">
+
+
+
+</div>‎ ‎ ‎‎ ‎ 
