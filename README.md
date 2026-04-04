@@ -8,7 +8,7 @@
 </p>
 
 
-[**s**traw](https://mitsubunnies.straw.page) </p> ‎‎‎‎[**a**ta](https://napne.atabook.org) </p> [**r**entry](https://rentry.co/afraidofeveryone) </p> *c+h* **&** *int* **a**lways 
+[**s**traw](https://mitsubunnies.straw.page) </p> ‎‎‎‎[**a**ta](https://napne.atabook.org) </p> [**r**entry](https://rentry.co/t4tpainter) </p> *c+h* **&** *int* **a**lways 
 
 </div>
 <div align="center">
