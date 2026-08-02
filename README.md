@@ -4,9 +4,8 @@
 **n***ana ‪‪**ᢉ𐭩**‬‬ 1***8** unlabeled *he him*
   
   ‎‎
-    <img width="300" src="https://i.pinimg.com/1200x/6d/03/d4/6d03d4dc6ee22583240c81e2f5f29b03.jpg">
+    <img width="300" src="https://i.pinimg.com/736x/3b/e4/a0/3be4a003b0d03aaefe6ff507757d2cb1.jpg">
 </p>
-
 
 [**s**traw](https://mitsubunnies.straw.page) </p> ‎‎‎‎[**a**ta](https://napne.atabook.org) </p> </p> *c+h* **&** *int* **a**lways 
 
