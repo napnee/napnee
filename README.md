@@ -12,6 +12,12 @@
 </div>
 <div align="center">
 
+  
+  ‎‎
+    <img width="300" src="https://media.discordapp.net/attachments/886379751890112613/1549911612658417905/image.png?ex=6aac6b2c&is=6aab19ac&hm=5dadf9c66fd15695944741e775c59ab710cc038b18735900d7093b20ec4257a0&=&format=webp&quality=lossless">
+</p>
+
 
 
 </div>‎ ‎ ‎‎ ‎ 
+  
